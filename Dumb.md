@@ -1,2 +1,2 @@
-#Everyone is dumb
+#Everyone
 Dumb Dumb Dumb Dumb
